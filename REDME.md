@@ -1,0 +1,1 @@
+chicken wings are a yummy form of chicken in which you add any type of sauce to small fried chicken pieces
